@@ -1,0 +1,1 @@
+# Veri_Azaltma_Yontemleri
